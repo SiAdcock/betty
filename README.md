@@ -2,7 +2,7 @@
 
 # Caravan
 
-- For several years, Betty and Tom owned a caravan at a park in Wyre Piddle (?)
+- For several years, Betty and Tom owned a caravan at a park in Wyre Piddle in the Worcestershire countryside.
 - And for what seemed like every weekend of those years, my sister Sarah and I would bundle into Tom's Ford Granada and we'd all head out to the caravan for a weekend on the River Avon
 - When we arrived, Tom would go off fishing, catching at best a few tiddlers. Betty would work on her garden. Sarah and I would seek out our weekend friends and play football or hide and seek late into the evening
 - At some point we'd head out to nearby Pershore for a few hours in the local swimming baths.
