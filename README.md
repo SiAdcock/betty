@@ -1,13 +1,24 @@
 # Betty
 
+- I'd like to start by saying thank you to each and every one of you for coming today. 
+- It would mean so much to Betty to see how many people she had touched over the years.
+- I want to talk about two periods of my life in which Betty meant a lot to me. Little things maybe not everyone knows about.
+- I think they demonstrate what a big heart she had, how much she cared
+- It's also important to mention that Betty said she would haunt anyone who messes up her funeral.
+- The Reverend John has done great work so far, I think he's off the hook.
+- I have literally spent days rehearsing this bit
+- But that doesn't mean I want you to stop praying for me. Every little helps.
+
 # Caravan
 
 - For several years, Betty and Tom owned a caravan at a park in Wyre Piddle in the Worcestershire countryside.
 - And for what seemed like every weekend of those years, my sister Sarah and I would bundle into Tom's Ford Granada and we'd all head out to the caravan for a weekend on the River Avon
-- When we arrived, Tom would go off fishing, catching at best a few tiddlers. Betty would work on her garden. Sarah and I would seek out our weekend friends and play football or hide and seek late into the evening
-- At some point we'd head out to nearby Pershore for a few hours in the local swimming baths.
-- Betty would heroically guide us through fields of cows and horses in a way that defied her age.
-- But my favourite moments were waking up on Sunday morning to a cup of tea and a saucer of Malted Milk biscuits. Betty knew we adored it and she always kept an abundant supply.
+- When we arrived, Tom would go off fishing, catching at best a few tiddlers. 
+- Betty would work on the garden surrounding her caravan. 
+- Sarah and I would seek out our weekend friends and play football or hide and seek late into the evening
+- We'd often walk to nearby Pershore for a few hours in the local swimming baths.
+- Betty would heroically guide us across fields of cows and horses in a way that defied her age.
+- But my favourite moments were waking up on Sunday morning to a cup of tea and a saucer of biscuits. Betty knew we adored this ritual and she always kept an abundant supply of malted milks.
 
 # Letters
 
@@ -23,3 +34,5 @@
 - "Watch out for seagulls." To this day, I have no idea what she had against seagulls, but I assured her that of course, I would.
 - She'd underline important words several times. Some words would be wrapped in quotation marks. 
 - And sometimes she'd draw little doodles for emphasis: sad faces, birds and rain clouds. She pre-empted the emoji by about 15 years.
+- No matter how I felt, whether lonely, sad or scared, Betty's letters were a friendly reminder of home, that people loved me.
+- Let's promise to keep Betty in our thoughts, our prayers, so she knows we're always thinking of her
