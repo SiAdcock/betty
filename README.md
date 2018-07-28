@@ -18,7 +18,9 @@
 - Sarah and I would seek out our weekend friends and play football or hide and seek late into the evening
 - We'd often walk to nearby Pershore for a few hours in the local swimming baths.
 - Betty would heroically guide us across fields of cows and horses in a way that defied her age.
-- But my favourite moments were waking up on Sunday morning to a cup of tea and a saucer of biscuits. Betty knew we adored this ritual and she always kept an abundant supply of malted milks.
+- But my favourite moments were waking up on Sunday morning to pot-brewed tea served in a china cup,with a saucer of malted milk biscuits. 
+- Betty knew we adored this ritual and she always kept an abundant supply of those biscuits.
+- I still get a fuzzy feeling in my stomach every time I dunk a malted milk into a cup of tea.
 
 # Letters
 
@@ -35,4 +37,5 @@
 - She'd underline important words several times. Some words would be wrapped in quotation marks. 
 - And sometimes she'd draw little doodles for emphasis: sad faces, birds and rain clouds. She pre-empted the emoji by about 15 years.
 - No matter how I felt, whether lonely, sad or scared, Betty's letters were a friendly reminder of home, that people loved me.
+- She knew I appreciated them, so she kept send them, like malted milk biscuits on a Sunday morning
 - Let's promise to keep Betty in our thoughts, our prayers, so she knows we're always thinking of her
