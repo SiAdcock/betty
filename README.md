@@ -1,9 +1,7 @@
 # Betty
 
-- I'd like to start by saying thank you to each and every one of you for coming today. 
-- It would mean so much to Betty to see how many people she had touched over the years.
-- I want to talk about two periods of my life in which Betty meant a lot to me. Little things maybe not everyone knows about.
-- I think they demonstrate what a big heart she had, how much she cared
+- I want to talk about two periods of my life in which Betty meant a lot to me
+- I think it will demonstrate what a big heart she had, how much she cared
 
 # Caravan
 
