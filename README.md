@@ -4,10 +4,6 @@
 - It would mean so much to Betty to see how many people she had touched over the years.
 - I want to talk about two periods of my life in which Betty meant a lot to me. Little things maybe not everyone knows about.
 - I think they demonstrate what a big heart she had, how much she cared
-- It's also important to mention that Betty said she would haunt anyone who messes up her funeral.
-- The Reverend John has done great work so far, I think he's off the hook.
-- I have literally spent days rehearsing this bit
-- But that doesn't mean I want you to stop praying for me. Every little helps.
 
 # Caravan
 
@@ -33,9 +29,9 @@
 - Her letters were distinctive, much like the instructions she left for this funeral. 
 - The handwriting. Short sentences. Strong verbs. 
 - "Wrap up warm."
-- "Watch out for seagulls." To this day, I have no idea what she had against seagulls, but I assured her that of course, I would.
+- "Watch out for seagulls." To this day, I have no idea what she had against seagulls, but I assured her that of course, I'd be careful.
 - She'd underline important words several times. Some words would be wrapped in quotation marks. 
 - And sometimes she'd draw little doodles for emphasis: sad faces, birds and rain clouds. She pre-empted the emoji by about 15 years.
 - No matter how I felt, whether lonely, sad or scared, Betty's letters were a friendly reminder of home, that people loved me.
-- She knew I appreciated them, so she kept send them, like malted milk biscuits on a Sunday morning
+- She knew I appreciated them, so she kept sending them, like malted milk biscuits on a Sunday morning
 - Let's promise to keep Betty in our thoughts, our prayers, so she knows we're always thinking of her
